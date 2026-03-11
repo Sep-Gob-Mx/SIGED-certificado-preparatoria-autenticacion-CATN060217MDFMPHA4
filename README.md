@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CATN060217MDFMPHA4
+CATN060217MDFMPHA4
